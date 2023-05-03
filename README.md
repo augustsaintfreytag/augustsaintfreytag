@@ -1,9 +1,7 @@
-### Welcome
-
-My name is @augustsaintfreytag, the renaissance is now. 
+### Welcome 
 
 I am a mixed media generalist, I create interactive experiences, apps, and games in different fields and flavours. 
-I work as a consultant on interesting projects. My original background is in visual art, music videos, and film.
+I work as a creator or as a consultant on interesting projects. My original background is in visual art, music videos, and film.
 
 ### Relevant Now:
 
